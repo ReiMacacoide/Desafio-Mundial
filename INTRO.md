@@ -1,6 +1,6 @@
 # Introdução
 
-Se o tempo está tatuado nas nossas mentes, então o tempo é o resultado do tempo de atenção que as nossas mentes prestaram.
+Se o Tempo for escrito na nossa Memória,  então a Expressão do Tempo, é a Expressão da nossa Memória como função do Tempo.
 
 O sonho e\ou a [fantasia](./FANTASIA.md) é ignição de todas as criações.
 
